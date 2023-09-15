@@ -1,3 +1,4 @@
+
 **Privacy Policy**
 
 Ben Mongirdas built the Animalia Chordata app as a Free app. This SERVICE is provided by Ben Mongirdas at no cost and is intended for use as is.
